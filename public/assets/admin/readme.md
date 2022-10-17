@@ -1,0 +1,1 @@
+Assets for warehouse manager and house captain
